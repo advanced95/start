@@ -17,10 +17,10 @@ The og site - https://advanced94.github.io/page/#home
 minecraft - https://drive.google.com/drive/folders/1zfSrf55xg53CyEXd_vfvYE4xb5RhI322?usp=sharing
 
 
-advanced94.github.io/io
+https://advanced94.github.io/io
 
 
-fake no wifi - advanced94.github.io/wifi
+fake no wifi - https://advanced94.github.io/wifi
 
 
-advanced94.github.io [thats litterally the link]
+https://advanced94.github.io [thats litterally the link]
