@@ -25,4 +25,8 @@ fake no wifi - https://advanced95.github.io/wifi
 
 https://advanced95.github.io
 
+
+advanced95.github.io/gams
+
+
 unknown if these wont get blocked
