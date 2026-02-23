@@ -1,26 +1,28 @@
-# these are the links
+# temporary links
 my personal favourite -https://advanced94.github.io/free/
 
 
-https://advanced94.github.io/vanish/
+https://advanced95.github.io/vanish/
 
 
-https://advanced94.github.io/fire/
+https://advanced95.github.io/fire/
 
 
-https://advanced94.github.io/crimson/ [broken😭]
+https://advanced95.github.io/crimson/ [broken😭]
 
 
-The og site - https://advanced94.github.io/page/#home
+The og site - https://advanced95.github.io/page/#home
 
 
 minecraft - https://drive.google.com/drive/folders/1zfSrf55xg53CyEXd_vfvYE4xb5RhI322?usp=sharing
 
 
-https://advanced94.github.io/io
+https://advanced95.github.io/io
 
 
-fake no wifi - https://advanced94.github.io/wifi
+fake no wifi - https://advanced95.github.io/wifi
 
 
-https://advanced94.github.io [thats litterally the link]
+https://advanced95.github.io
+
+unknown if these wont get blocked
