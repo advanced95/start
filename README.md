@@ -1,5 +1,5 @@
 # temporary links
-my personal favourite -https://advanced94.github.io/free/
+my personal favourite -https://advanced95.github.io/free/
 
 
 https://advanced95.github.io/vanish/
